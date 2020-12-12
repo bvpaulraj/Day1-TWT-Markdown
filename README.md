@@ -18,3 +18,6 @@ My employment history is as follows:
 
 I am looking for a role where I can use my sp
 ecial point-and-mark skills to annotate research papers at academic institutions that offer certificate courses in the following areas: mythology, comics, and card games.
+
+
+### New Topic
